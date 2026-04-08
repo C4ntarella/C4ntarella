@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-![image alt] (https://github.com/DeadT0me/DeadT0me/blob/b7829d611d0e884d2a419f5c5df7e4f1e39b5f76/pngwing.com%20(2).png)
+
 <!--
 **DeadT0me/DeadT0me** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
