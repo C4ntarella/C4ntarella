@@ -2,7 +2,7 @@
  ${\textsf{\color{#fa92ac}𝐜 + 𝐡 • 𝐝𝐨𝐧’𝐭 𝐛𝐞 𝐬𝐡𝐲 𝐭𝐨 𝐢𝐧𝐭! 𝐮𝐧𝐥𝐞𝐬𝐬 𝐢’𝐦 𝐰𝐢𝐭𝐡 𝐦𝐲 𝐟𝐫𝐢𝐞𝐧𝐝𝐬 • 𝐩𝐥𝐬 𝐝𝐧𝐜}}$
 ##
 
-![image ](https://github.com/user-attachments/assets/7a3daf38-0756-44f9-899a-7b25d293f655.gif)
+![Image](https://github.com/user-attachments/assets/fd1d1aa2-d15f-4211-a9ac-04a8477eb04b)
 
 ![image alt](https://github.com/DeadT0me/DeadT0me/blob/b7829d611d0e884d2a419f5c5df7e4f1e39b5f76/pngwing.com%20(2).png)
 
