@@ -4,7 +4,7 @@
   ${\textsf{\color{#fa92ac} • 𝐈’𝐦 𝐢𝐧 𝐜𝐫𝐤 𝐳𝐨𝐧𝐞 𝐨𝐫 𝐠𝐚𝐜𝐡𝐢𝐚𝐤𝐮𝐭𝐚 𝐳𝐨𝐧𝐞!!}}$
    ${\textsf{\color{#fa92ac}𝐒𝐚𝐟𝐞 𝐬𝐩𝐚𝐧𝐢𝐬𝐡/𝐩𝐫𝐨𝐭𝐮𝐠𝐮𝐞𝐬𝐞 •  𝐩𝐥𝐬 𝐝𝐧𝐜}}$
 ##
-
+![Image](https://github.com/user-attachments/assets/d16aa30f-1ac7-4509-b8cd-86ac870463e3)
 
 ![Image](https://github.com/user-attachments/assets/5d47dd2d-2e06-42f6-8530-16c8cbcce0af)
 
