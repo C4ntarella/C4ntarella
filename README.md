@@ -5,7 +5,7 @@
 ##
 
 
-<img width="1750" height="800" alt="Image" src="https://github.com/user-attachments/assets/f6003a25-6e98-4f80-b416-10f86ff2d5bf" />
+![Image](https://github.com/user-attachments/assets/c874ed57-690f-4294-a963-44d5ff6fc506)
 
 
 <!--
