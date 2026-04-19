@@ -3,6 +3,7 @@
  ${\textsf{\color{#fa92ac}𝐜 + 𝐡 • 𝐝𝐨𝐧’𝐭 𝐛𝐞 𝐬𝐡𝐲 𝐭𝐨 𝐢𝐧𝐭 𝐮𝐧𝐥𝐞𝐬𝐬 𝐢’𝐦 𝐰𝐢𝐭𝐡 𝐦𝐲 𝐟𝐫𝐢𝐞𝐧𝐝𝐬}}$
    ${\textsf{\color{#fa92ac} •  𝐩𝐥𝐬 𝐝𝐧𝐜}}$
 ##
+<div align="center">
 ![Image](https://github.com/user-attachments/assets/d16aa30f-1ac7-4509-b8cd-86ac870463e3)
 
 
