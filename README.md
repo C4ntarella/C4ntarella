@@ -9,6 +9,10 @@
 
 
 
+
+![Image](https://github.com/user-attachments/assets/e94d9e58-fc24-485b-92a2-925e1f06c47e)
+
+
 <!--
 **DeadT0me/DeadT0me** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
