@@ -4,6 +4,7 @@
    ${\textsf{\color{#fa92ac} •  𝐩𝐥𝐬 𝐝𝐧𝐜}}$
 ##
 <div align="center">
+ 
 ![Image](https://github.com/user-attachments/assets/d16aa30f-1ac7-4509-b8cd-86ac870463e3)
 
 
