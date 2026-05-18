@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/5a3505de-620d-4d4c-8dc3-ccf03e11d76f)
+![Image](https://github.com/user-attachments/assets/f2487f5f-e394-4ddf-b025-4ffeeafdc372)
 ##
  ${\textsf{\color{#fa92ac}𝐜 + 𝐡 • 𝐝𝐨𝐧’𝐭 𝐛𝐞 𝐬𝐡𝐲 𝐭𝐨 𝐢𝐧𝐭 (>ᴗ•)}}$
    ${\textsf{\color{#fa92ac} •  𝐩𝐥𝐬 𝐝𝐧𝐜}}$
