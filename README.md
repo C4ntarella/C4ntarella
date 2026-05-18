@@ -1,5 +1,6 @@
 ![Image](https://github.com/user-attachments/assets/f2487f5f-e394-4ddf-b025-4ffeeafdc372)
 ##
+<div align="center">
  ${\textsf{\color{#69021e}𝐜 + 𝐡 • 𝐝𝐨𝐧’𝐭 𝐛𝐞 𝐬𝐡𝐲 𝐭𝐨 𝐢𝐧𝐭 (>ᴗ•)}}$
    ${\textsf{\color{#69021e} •  𝐩𝐥𝐬 𝐝𝐧𝐜}}$
 ##
