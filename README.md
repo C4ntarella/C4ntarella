@@ -3,7 +3,7 @@
 <div align="center">
  
  ${\textsf{\color{#69021e}𝐜 + 𝐡 • 𝐝𝐨𝐧’𝐭 𝐛𝐞 𝐬𝐡𝐲 𝐭𝐨 𝐢𝐧𝐭 •  𝐩𝐥𝐬 𝐝𝐧𝐜 }}$ 
- ![Image](https://github.com/user-attachments/assets/e57f3ea6-d683-4011-8828-d08b7666e696)
+ ![Image](https://github.com/user-attachments/assets/37cda6a8-a409-4fa7-aee9-13b2d2c57d8d)
 
    </div>
 
