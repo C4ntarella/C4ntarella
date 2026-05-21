@@ -6,7 +6,7 @@
 
  ##
  
- ${\textsf{\color{#69021e}𝐜 + 𝐡 • 𝐝𝐨𝐧’𝐭 𝐛𝐞 𝐬𝐡𝐲 𝐭𝐨 𝐢𝐧𝐭 •  𝐩𝐥𝐬 𝐝𝐧𝐜 }}$ 
+ ${\textsf{\color{#69021e}𝐜 + 𝐡 • 𝐝𝐨𝐧’𝐭 𝐛𝐞 𝐬𝐡𝐲 𝐭𝐨 𝐢𝐧𝐭 •  𝐩𝐥𝐬 𝐝𝐧𝐜 }}$  ![Image](https://github.com/user-attachments/assets/e104d738-8c5a-4343-9c13-9c962377e612)
 
    </div>
 
