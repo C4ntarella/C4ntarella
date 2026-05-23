@@ -5,7 +5,7 @@
 ![Image](https://github.com/user-attachments/assets/8ea43eaa-2184-47f3-a5bc-83bd712948380)
 
 
- ${\textsf{\color{#8D95EF} 　 ͜  °　 ᛝ 𝓈𝒽ℯ／𝒽ℯ𝓇　ᛝ　 ͜　° }}$ 
+ ${\textsf{\color{#8D95EF} 　 ͜  °　 ᛝ  𝓈𝒽ℯ ／ 𝒽ℯ𝓇　ᛝ　 ͜　° }}$ 
 
 <br>
  
