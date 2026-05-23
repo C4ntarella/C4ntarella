@@ -13,7 +13,7 @@
 <div align="center">
 
 
-![Image](https://github.com/user-attachments/assets/4eaa00d2-6c0e-440c-9208-35836014b0d8)
+![Image]()
  ${\textsf{\color{#69021e} ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ }}$ <a href="https://leci3l.straw.page"><b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b></a>  ${\textsf{\color{#69021e} ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ }}$ 
 
 
