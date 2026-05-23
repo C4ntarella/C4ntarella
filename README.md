@@ -4,6 +4,9 @@
  
 ![Image](https://github.com/user-attachments/assets/8ea43eaa-2184-47f3-a5bc-83bd712948380)
 
+
+ ${\textsf{\color{#8D95EF} 　 ͜ °　 ᛝ 𝓈𝒽ℯ／𝒽ℯ𝓇　ᛝ　 ͜　° }}$ 
+
 <br>
  
  ${\textsf{\color{#8D95EF}𝐜 + 𝐡 • 𝐝𝐨𝐧’𝐭 𝐛𝐞 𝐬𝐡𝐲 𝐭𝐨 𝐢𝐧𝐭 •  𝐩𝐥𝐬 𝐝𝐧𝐜 }}$ 
