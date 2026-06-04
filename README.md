@@ -17,7 +17,7 @@
 
 
 ![Image](https://github.com/user-attachments/assets/17b5fd7f-8196-4163-8725-eeadcc6f49eb)
- ${\textsf{\color{#8D95EF} ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ }}$ <a href="https://leci3l.straw.page"><b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b> </a>  ${\textsf{\color{#8D95EF} 𓆩♡𓆪 }}$  <a href="https://calalini.atabook.org/"><b>𝐀𝐭𝐚𝐛𝐨𝐨𝐤</b></a> ${\textsf{\color{#8D95EF} ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ }}$ 
+ ${\textsf{\color{#8D95EF}  ┈━┈ }}$ <a href="https://leci3l.straw.page"><b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b> </a>  ${\textsf{\color{#8D95EF} 𓆩♡𓆪 }}$  <a href="https://calalini.atabook.org/"><b>𝐀𝐭𝐚𝐛𝐨𝐨𝐤</b></a> ${\textsf{\color{#8D95EF}  ┈━┈ }}$ 
 
 
 
