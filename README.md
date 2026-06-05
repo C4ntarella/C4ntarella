@@ -1,8 +1,8 @@
-![Image](https://github.com/user-attachments/assets/c2972f3f-3232-42c4-b5fd-2c307f0a4e29)
+![Image]()
 
 <div align="center">
  
-![Image](https://github.com/user-attachments/assets/8ea43eaa-2184-47f3-a5bc-83bd712948380)
+![Image](https://github.com/user-attachments/assets/c9b6dcab-11fb-4529-83a5-6273a9813db2ll)
 
 
  ${\textsf{\color{#8D95EF} 　 ͜　°    ᛝ   𝓈𝒽ℯ ／ 𝒽ℯ𝓇ᛝ　 ͜　° }}$ 
