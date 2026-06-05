@@ -2,7 +2,7 @@
 
 <div align="center">
  
-![Image](https://github.com/user-attachments/assets/c9b6dcab-11fb-4529-83a5-6273a9813db2ll)
+![Image](https://github.com/user-attachments/assets/c9b6dcab-11fb-4529-83a5-6273a9813db2)
 
 
  ${\textsf{\color{#8D95EF} 　 ͜　°    ᛝ   𝓈𝒽ℯ ／ 𝒽ℯ𝓇ᛝ　 ͜　° }}$ 
