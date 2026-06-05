@@ -16,7 +16,7 @@
 <div align="center">
 
 
-![Image](https://github.com/user-attachments/assets/17b5fd7f-8196-4163-8725-eeadcc6f49eb)
+![Image](https://github.com/user-attachments/assets/43fa62ae-3bfa-4e99-a425-8ec38f187fe0)
  ${\textsf{\color{#8D95EF}  ┈━┈ }}$ <a href="https://leci3l.straw.page"><b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b> </a>  ${\textsf{\color{#8D95EF} 𓆩♡𓆪 }}$  <a href="https://calalini.atabook.org/"><b>𝐀𝐭𝐚𝐛𝐨𝐨𝐤</b></a> ${\textsf{\color{#8D95EF}  ┈━┈ }}$ 
 
 
