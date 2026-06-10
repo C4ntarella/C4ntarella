@@ -12,9 +12,11 @@
  ${\textsf{\color{#8D95EF}𝐜 + 𝐡 • 𝐝𝐨𝐧’𝐭 𝐛𝐞 𝐬𝐡𝐲 𝐭𝐨 𝐢𝐧𝐭 •  𝐩𝐥𝐬 𝐝𝐧𝐜 }}$ 
    </div>
 
-
+<br>
 
   <div align="center">
+
+![Image](https://github.com/user-attachments/assets/f2e71cce-2859-44b2-9668-79d299fece17)
    
    <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=%F0%9D%92%AE%F0%9D%92%BE%F0%9D%93%81%F0%9D%93%81%F0%9D%93%8E&extraCount=6766&color=2c3063&labelColor=8D95EF"/></a>
  
