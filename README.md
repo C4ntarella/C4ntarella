@@ -9,7 +9,8 @@
 
 <br>
  
- ${\textsf{\color{#aa2614}𝐜 + 𝐡 • 𝐝𝐨𝐧’𝐭 𝐛𝐞 𝐬𝐡𝐲 𝐭𝐨 𝐢𝐧𝐭 •  𝐩𝐥𝐬 𝐝𝐧𝐜 •  𝐰𝟐𝐢}}$ 
+ ${\textsf{\color{#aa2614}𝐜 + 𝐡 • 𝐝𝐨𝐧’𝐭 𝐛𝐞 𝐬𝐡𝐲 𝐭𝐨 𝐢𝐧𝐭 •  𝐩𝐥𝐬 𝐝𝐧𝐜 •  𝐰𝟐𝐢}}$  ![Image](https://github.com/user-attachments/assets/1f964a88-60a7-411c-8139-e83acc907bb3)
+ 
    </div>
 
 <br>
