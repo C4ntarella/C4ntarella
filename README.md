@@ -40,9 +40,12 @@
 <div align="center">
 
 ![Image](https://github.com/user-attachments/assets/f0038130-9eb3-46cb-8c5d-4eed3f3af80b)
+
+<br>
+
+![Image](https://github.com/user-attachments/assets/b00f48e5-29ea-438c-b7a3-9835a4af1678)
+
 </div>
-
-
 
 <!--
 **DeadT0me/DeadT0me** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
