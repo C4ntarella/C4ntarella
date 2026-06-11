@@ -17,7 +17,7 @@
 
   <div align="center">
 
-![Image](https://github.com/user-attachments/assets/c884db6e-51a0-48fb-8a8b-1c7692bd1810)
+![Image](https://github.com/user-attachments/assets/a9a46034-c8e3-47bb-9c0e-3a17a5eb9ac5)
 
 <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=silly&extraCount=6766&color=555555&labelColor=aa2614"/></a>
 
