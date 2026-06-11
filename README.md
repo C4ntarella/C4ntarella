@@ -6,7 +6,7 @@
 
  ${\textsf{\color{#aa2614} 　wip }}$ 
 
- ${\textsf{\color{#aa2614} 　 ͜　°    ᛝ   𝓈𝒽ℯ ／ 𝒽ℯ𝓇ᛝ　 ͜　° }}$ 
+ ${\textsf{\color{#aa2614} 　┈━┈  𝓈𝒽ℯ ／ 𝒽ℯ𝓇 ┈━┈ }}$ 
 
 <br>
  
