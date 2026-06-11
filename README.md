@@ -44,7 +44,6 @@
 </div>
 <div align="center">
  
-![Image](https://github.com/user-attachments/assets/b00f48e5-29ea-438c-b7a3-9835a4af1678)
 
 <br>
 
