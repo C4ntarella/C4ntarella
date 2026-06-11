@@ -4,7 +4,7 @@
  
 ![Image](https://github.com/user-attachments/assets/8ea43eaa-2184-47f3-a5bc-83bd712948380)
 
- ${\textsf{\color{#aa2614} 　wip }}$ 
+
 
  ${\textsf{\color{#aa2614} 　┈━┈  𝓈𝒽ℯ ／ 𝒽ℯ𝓇 ┈━┈ }}$ 
 
