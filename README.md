@@ -43,7 +43,7 @@
 
 <br>
 
-![Image](https://github.com/user-attachments/assets/b00f48e5-29ea-438c-b7a3-9835a4af1678)
+![Image](https://github.com/user-attachments/assets/20719d20-2c74-4a66-9c29-f0a86afec66b)
 
 </div>
 
