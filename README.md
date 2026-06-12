@@ -9,7 +9,7 @@
 
 <br>
 
-  ${\textsf{\color{#aa2614}  ┈━┈ }}$ <a href="https://leci3l.straw.page"><b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b> </a>  ${\textsf{\color{#aa2614} 𓆩♡𓆪 }}$  <a href="https://calalini.atabook.org/"><b>𝐀𝐭𝐚𝐛𝐨𝐨𝐤</b></a> ${\textsf{\color{#aa2614}  ┈━┈ }}$ 
+  ${\textsf{\color{#aa2614}  ┈━┈ }}$ <a href="https://qifreyiloveu.straw.page"><b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b> </a>  ${\textsf{\color{#aa2614} 𓆩♡𓆪 }}$  <a href="https://calalini.atabook.org/"><b>𝐀𝐭𝐚𝐛𝐨𝐨𝐤</b></a> ${\textsf{\color{#aa2614}  ┈━┈ }}$ 
 
 
    </div>
