@@ -9,7 +9,7 @@
 
 <br>
 
-  ${\textsf{\color{#aa2614}  ┈━┈ }}$ <a href="https://qifreyiloveu.straw.page"><b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b> </a>  ${\textsf{\color{#aa2614} 𓆩♡𓆪 }}$  <a href="https://calalini.atabook.org/"><b>𝐀𝐭𝐚𝐛𝐨𝐨𝐤</b></a> ${\textsf{\color{#aa2614}  ┈━┈ }}$ 
+  ${\textsf{\color{#d73c43}  ┈━┈ }}$ <a href="https://qifreyiloveu.straw.page"><b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b> </a>  ${\textsf{\color{#d73c43} 𓆩♡𓆪 }}$  <a href="https://calalini.atabook.org/"><b>𝐀𝐭𝐚𝐛𝐨𝐨𝐤</b></a> ${\textsf{\color{#d73c43}  ┈━┈ }}$ 
 
 
    </div>
@@ -33,7 +33,7 @@
 <br>
 
 
-![Image](https://github.com/user-attachments/assets/1f964a88-60a7-411c-8139-e83acc907bb3) ${\textsf{\color{#aa2614}𝐜 + 𝐡 • 𝐝𝐨𝐧’𝐭 𝐛𝐞 𝐬𝐡𝐲 𝐭𝐨 𝐢𝐧𝐭 •  𝐩𝐥𝐬 𝐝𝐧𝐜 •  𝐰𝟐𝐢}}$  ![Image](https://github.com/user-attachments/assets/1f964a88-60a7-411c-8139-e83acc907bb3)
+![Image](https://github.com/user-attachments/assets/1f964a88-60a7-411c-8139-e83acc907bb3) ${\textsf{\color{#d73c43}𝐜 + 𝐡 • 𝐝𝐨𝐧’𝐭 𝐛𝐞 𝐬𝐡𝐲 𝐭𝐨 𝐢𝐧𝐭 •  𝐩𝐥𝐬 𝐝𝐧𝐜 •  𝐰𝟐𝐢}}$  ![Image](https://github.com/user-attachments/assets/1f964a88-60a7-411c-8139-e83acc907bb3)
  
 
 
