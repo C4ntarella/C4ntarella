@@ -36,7 +36,7 @@
 ![Image](https://github.com/user-attachments/assets/1f964a88-60a7-411c-8139-e83acc907bb3) ${\textsf{\color{#d73c43}𝐜 + 𝐡 • 𝐝𝐨𝐧’𝐭 𝐛𝐞 𝐬𝐡𝐲 𝐭𝐨 𝐢𝐧𝐭 •  𝐩𝐥𝐬 𝐝𝐧𝐜 •  𝐰𝟐𝐢}}$  ![Image](https://github.com/user-attachments/assets/1f964a88-60a7-411c-8139-e83acc907bb3)
 
 
- ![Image](https://github.com/user-attachments/assets/85856598-25ba-4d8b-879f-f9e11d705c04)
+ ![demo](https://github.com/user-attachments/assets/85856598-25ba-4d8b-879f-f9e11d705c04)
 
 <br>
 
