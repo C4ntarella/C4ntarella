@@ -20,7 +20,8 @@
 
 ![Image](https://github.com/user-attachments/assets/f0038130-9eb3-46cb-8c5d-4eed3f3af80b)
 
-<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=silly%20%C2%B4%CE%B5%EF%BD%80&extraCount=6766&color=555555&labelColor=2675a3"/></a> <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=cute%E2%9D%A4%EF%B8%8E&extraCount=6766&color=555555&labelColor=971818"/></a>
+<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=silly%20%C2%B4%CE%B5%EF%BD%80&extraCount=6766&color=555555&labelColor=2675a3"/> ![Image](https://github.com/user-attachments/assets/6adb0019-4284-4c90-b369-7fcaa3969e99) </a> <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=cute%E2%9D%A4%EF%B8%8E&extraCount=6766&color=555555&labelColor=971818"/></a>
+
   </div>
 
 <div align="center">
