@@ -28,9 +28,6 @@
 
 ![Image](https://github.com/user-attachments/assets/0c9773cf-1650-4fd8-a942-4bfe9dbf9e5e)
 
-</div>
-
-<div align="center">
  
 ![Image](https://github.com/user-attachments/assets/f0038130-9eb3-46cb-8c5d-4eed3f3af80b)
 
