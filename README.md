@@ -14,7 +14,7 @@
 
 <br>
 
-  ${\textsf{\color{#d73c43}  ┈━┈ }}$ <a href="https://qifreyiloveu.straw.page"><b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b> </a>  ${\textsf{\color{#d73c43} 𓆩♡𓆪 }}$  <a href="https://calalini.atabook.org/"> ${\textsf{\color{#d73c43}  ┈━┈ }}$
+  ${\textsf{\color{#d73c43}  ┈━┈ }}$ <a href="https://qifreyiloveu.straw.page"><b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b> </a>  ${\textsf{\color{#d73c43} 𓆩♡𓆪 }}$  <a href="https://calalini.atabook.org/"> 
 
 
    </div>
