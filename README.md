@@ -36,7 +36,7 @@
 
 ![Image](https://github.com/user-attachments/assets/07c41b3e-57cd-43e0-b7b0-7ed93bf11a43) ${\textsf{\color{#d73c43} ₊⁺𝖶𝟤𝗂 ⌒ 𝖣𝗇𝖼 ⌒ 𝖼+𝗁₊⁺ }}$ ![Image](https://github.com/user-attachments/assets/be3cc1bd-3891-43d4-bd6d-ea8e64e6666f)
 
-https://github.com/user-attachments/assets/76016438-0415-49f1-8447-28b2b067d635
+
 
 <br>
 
