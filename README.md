@@ -14,6 +14,7 @@
 
   ${\textsf{\color{#091069}  ┈━┈ }}$ <b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b> </a>  ${\textsf{\color{#343e85} 𓆩♡𓆪 }}$  <a href="https://calalini.atabook.org/"><b>𝐀𝐭𝐚𝐛𝐨𝐨𝐤</b> </a>   ${\textsf{\color{#72287b}  ┈━┈ }}$
 
+${\textsf{\color{#091069}  ┈━┈ }}$  <a href="https://C4ntarella.carrd.co"><b>𝐂𝐚𝐫𝐫𝐝</b> </a>${\textsf{\color{#72287b}  ┈━┈ }}$
 
    </div>
 
