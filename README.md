@@ -7,12 +7,12 @@
 
 <div align="center">
 
-![Image](https://github.com/user-attachments/assets/07c41b3e-57cd-43e0-b7b0-7ed93bf11a43) ${\textsf{\color{#1E203A} ₊⁺𝖶𝟤𝗂 }}$ ${\textsf{\color{#292D4C}  ⌒ 𝖣𝗇𝖼  }}$ ${\textsf{\color{#3E1B42} ⌒ 𝖼+𝗁₊⁺ }}$  ![Image](https://github.com/user-attachments/assets/be3cc1bd-3891-43d4-bd6d-ea8e64e6666f)
+![Image](https://github.com/user-attachments/assets/07c41b3e-57cd-43e0-b7b0-7ed93bf11a43) ${\textsf{\color{#091069} ₊⁺𝖶𝟤𝗂 }}$ ${\textsf{\color{#343e85}  ⌒ 𝖣𝗇𝖼  }}$ ${\textsf{\color{#72287b} ⌒ 𝖼+𝗁₊⁺ }}$  ![Image](https://github.com/user-attachments/assets/be3cc1bd-3891-43d4-bd6d-ea8e64e6666f)
 
 
 <br>
 
-  ${\textsf{\color{#1E203A}  ┈━┈ }}$ <b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b> </a>  ${\textsf{\color{#292D4C} 𓆩♡𓆪 }}$  <a href="https://calalini.atabook.org/"><b>𝐀𝐭𝐚𝐛𝐨𝐨𝐤</b> </a>   ${\textsf{\color{#3E1B42}  ┈━┈ }}$
+  ${\textsf{\color{#091069}  ┈━┈ }}$ <b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b> </a>  ${\textsf{\color{#343e85} 𓆩♡𓆪 }}$  <a href="https://calalini.atabook.org/"><b>𝐀𝐭𝐚𝐛𝐨𝐨𝐤</b> </a>   ${\textsf{\color{#72287b}  ┈━┈ }}$
 
 
    </div>
