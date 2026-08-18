@@ -21,7 +21,7 @@
 
   <div align="center">
 
-<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=silly%20%C2%B4%CE%B5%EF%BD%80&extraCount=6766&color=555555&labelColor=2675a3"/>   ![Image](https://github.com/user-attachments/assets/23f7efde-a2ea-47e4-949b-25dcd450215d)   </a> <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=cute%E2%9D%A4%EF%B8%8E&extraCount=6766&color=555555&labelColor=971818"/></a>
+<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=silly%20%C2%B4%CE%B5%EF%BD%80&extraCount=6766&color=555555&labelColor=2675a3"/>   ![Image](https://github.com/user-attachments/assets/a811588c-bfff-410a-af7e-6e164484a1cd)   </a> <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=cute%E2%9D%A4%EF%B8%8E&extraCount=6766&color=555555&labelColor=971818"/></a>
 
   </div>
 
