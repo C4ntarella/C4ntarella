@@ -21,7 +21,7 @@
 
   <div align="center">
     
-<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?style=for-the-badge&label=silly%E0%AD%A8%E0%AD%A7&extraCount=6767&color=17274e&labelColor=72287b"/></a>  ![Image](https://github.com/user-attachments/assets/a811588c-bfff-410a-af7e-6e164484a1cd) <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?style=for-the-badge&label=love%E2%99%A1&extraCount=6767&color=17274e&labelColor=82235f"/></a>
+<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?style=for-the-badge&label=silly%E0%AD%A8%E0%AD%A7&extraCount=6767&color=17274e&labelColor=72287b"/></a>  ![Image](https://github.com/user-attachments/assets/b4825a78-415e-4171-996b-7a243fc626fd) <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?style=for-the-badge&label=love%E2%99%A1&extraCount=6767&color=17274e&labelColor=82235f"/></a>
 
   </div>
 
