@@ -6,11 +6,9 @@
 </div>
 
 <div align="center">
- 
-![Image](https://github.com/user-attachments/assets/a5c0bac1-cebf-453f-ae8d-608d8757b74a)
 
+![Image](https://github.com/user-attachments/assets/07c41b3e-57cd-43e0-b7b0-7ed93bf11a43) ${\textsf{\color{#d73c43} ₊⁺𝖶𝟤𝗂 ⌒ 𝖣𝗇𝖼 ⌒ 𝖼+𝗁₊⁺ }}$ ![Image](https://github.com/user-attachments/assets/be3cc1bd-3891-43d4-bd6d-ea8e64e6666f)
 
- ${\textsf{\color{#aa2614} 　┈━┈  𝓈𝒽ℯ ／ 𝒽ℯ𝓇 ┈━┈ }}$ 
 
 <br>
 
@@ -23,8 +21,6 @@
 
   <div align="center">
 
-![Image](https://github.com/user-attachments/assets/f0038130-9eb3-46cb-8c5d-4eed3f3af80b)
-
 <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=silly%20%C2%B4%CE%B5%EF%BD%80&extraCount=6766&color=555555&labelColor=2675a3"/>   ![Image](https://github.com/user-attachments/assets/23f7efde-a2ea-47e4-949b-25dcd450215d)   </a> <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=cute%E2%9D%A4%EF%B8%8E&extraCount=6766&color=555555&labelColor=971818"/></a>
 
   </div>
@@ -32,9 +28,8 @@
 <div align="center">
 
 
-![Image](https://github.com/user-attachments/assets/0c9773cf-1650-4fd8-a942-4bfe9dbf9e5e)
+![Image](https://github.com/user-attachments/assets/98638ae7-ccee-4cfd-8b2c-954e41bcf43c)
 
-![Image](https://github.com/user-attachments/assets/07c41b3e-57cd-43e0-b7b0-7ed93bf11a43) ${\textsf{\color{#d73c43} ₊⁺𝖶𝟤𝗂 ⌒ 𝖣𝗇𝖼 ⌒ 𝖼+𝗁₊⁺ }}$ ![Image](https://github.com/user-attachments/assets/be3cc1bd-3891-43d4-bd6d-ea8e64e6666f)
 
 
 
